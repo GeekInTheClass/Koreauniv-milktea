@@ -1,2 +1,0 @@
-korea milk
-tea
